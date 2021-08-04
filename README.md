@@ -25,3 +25,8 @@ phone or email
 
 pass.txt or password.txt
 
+
+
+facebook: https://www.facebook.com/naserEgypt0
+
+Telegram: https://t.me/Anonymous_Hack_12
